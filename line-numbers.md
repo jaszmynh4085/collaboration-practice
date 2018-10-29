@@ -6,10 +6,10 @@
 #### 6
 #### 7 booooooorrrreeeedddd~~~~~~~
 #### 8
-#### 9 Github is ok ig
+#### 9 Github is really ok
 #### 10
 #### 11
 #### 12
-#### 13
+#### 13 [gay](https://i.imgur.com/1jjULy1.gif)
 #### 14
 #### 15
